@@ -1,0 +1,2 @@
+# staticanime1
+1
